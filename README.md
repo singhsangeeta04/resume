@@ -1,4 +1,4 @@
-# resume # **Sangeeta Singh**
+ **Sangeeta Singh**
 
 17637 NE 30TH place, Redmond,
 
